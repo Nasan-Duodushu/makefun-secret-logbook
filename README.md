@@ -1,0 +1,2 @@
+# makefun-secret-logbook
+Entry for make.fun u-email-baru-my-secret-logbook-cc177449
